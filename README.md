@@ -6,6 +6,7 @@ A collection of ASCII art I use frequently to express emotion/troll
     ゞ(’□’*)ノ
     (╯°□°）╯︵ ┻━┻  
     (ノಠ益ಠ)ノ彡┻━┻  
+    ┻━┻︵ \(°□°)/ ︵ ┻━┻
     (╯°□°）╯︵ sıɥʇ  
     ┬─┬ノ( º _ ºノ)  
     (╯°□°）╯︵ ╯(.□.╯)  
